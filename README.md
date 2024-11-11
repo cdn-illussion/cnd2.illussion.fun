@@ -1,1 +1,1 @@
-# cnd2.illussion.fun
+# cdn2.illussion.fun
